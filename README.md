@@ -1,4 +1,6 @@
-# PhD Candidate, University of New Hampshire
+# Ashif H Abir 
+##### PhD Candidate, Department of Natural Resources and Environment
+##### University of New Hampshire, Durham, NH
 
 ### Education
 
